@@ -8,4 +8,4 @@ hence why I don't give away my photos for free
 but I do try to make them a reasonable price.
 
 
-Check Out The Discord: discord.gg/TejwvffxQg
+Check Out The Discord: https://discord.gg/TejwvffxQg
